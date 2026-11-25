@@ -1,4 +1,7 @@
 # Byi
 Im a minor zo adaultz--> dni!
 z typing quirk I'll tranzlate zomthing if you need me too!
-zhelly zcrapz ginger yume doublez-->iwc-uf 
+zhelly zcrapz ginger yume doublez-->iwc-uf
+age range I'll be friendz with--> 13-15
+age range that I'll talk to if they need zomthing-->12-17 
+age-range I'll block or hide if they interact-->-11 18+
